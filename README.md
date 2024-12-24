@@ -58,7 +58,8 @@ I end up dating Ivana Brusar, who mentions I'm from Zadar in underpass while the
 
 In Zadar I meet Jadranka Bistričić, whome I deflower first weekend after oath in the army, but I end up raped multiple times in the army, and Jadranka ends up sleeping with everyone I knew.
 
-Dad buys a red Kia Pride while I'm in the army. I drive to new years eve to Sukosan, where I make a son to a girl called Albina Hrnčević, but she is only 16 and doesn't want to raise the kid with me. I'm actually not even aware she was left pregnant.
+Dad buys a red Kia Pride while I'm in the army. I drive to new years eve to Sukosan, where I make a son to a girl called Albina Hrnčević, but she is only 16 and doesn't want to raise the kid with me. 
+I'm actually not even aware she was left pregnant. A weird thing happens there, I go through a stone arcade passage and all the people in the village and people at the house disappear.
 
 I get a job at Tisak, as a driver and meet Branka, a single mom with a 4yo son, and I make her pregnant, then she aborts, then we break up. I see her years later when she came to Tankerkomerc Marina for one hour to yacht with two Italian dudes on.
 
@@ -81,6 +82,12 @@ Filip is tricking me into marrying some girl. I fail to see the bride face becau
 A waiter from Downtown bar, Ante Mitrović, wants me to nail his wife, Iva Delija, because he can't have kids. I refuse, but lose memory and see them having 2 kids on facebook, years later.
 
 My memories slowly start returning, bit by bit, at age of 35 I finally grasp figurative speech, as I understood everything literally till then.
+
+When I go to irish pub, I sit at table with a dozen people, one of them asks what we think about gays, and I lose memory, then come back, and one of them is tossing me a knife to deal with the gay, but I don't remember what the gay did.
+
+My friends Davor Baštanić and Ivica Stručić want me to drive them to Split, to parachuters club, where I end up raped.
+
+I go to drink in UB40 place called Garden, where a guy approaches me and asks what I think about gays. He disappears before my eyes and I have 100kn missing in my wallet.
 
 My mom and my dog die, and I get family pension as 100% work unable, 70% off of my moms pension.
 
