@@ -121,3 +121,6 @@ so they had excuse to cause me schizophrenia, make my word worthless after that,
 they are causing this whole gender thing to everyone. I beleive school shootings, genders, increase in non hetero people, gmo, car accidents and wars are being used as a tool to reduce human population. There is a reason why ads are allowed everywhere,
 and thats to both make profit and make sure suggestion/hypnosis stays legal. They will cause us all to want to leave to Mars by making normal life impossible, and I do beleive nobody will actually reach Mars, tho we might get deep fake videos from people
 allegedly inhabiting Mars. I also beleive they use network capabilities to actually do things to people, and the ammount of damage they can do to you depends on network capability.
+
+To add to control of population, they are also making an effort to control data. None of the stuff in your devices, neither ram nor drives can be trusted, they can alter it as they see fit. All the stuff online that was public knownledge and sensitive was
+likely already altered. Soon they will control animals and plants, and than they'll move on to viruses and bacterias.
