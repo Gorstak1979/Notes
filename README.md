@@ -120,4 +120,4 @@ To add some details, it seems I was hypnoed and ordered to do things since I was
 so they had excuse to cause me schizophrenia, make my word worthless after that, aaand tell people I'm pedo so they get everyone against me. Fact is, your government service can harm you both physically and mentally and they made me schizo 20y ago, and now
 they are causing this whole gender thing to everyone. I beleive school shootings, genders, increase in non hetero people, gmo, car accidents and wars are being used as a tool to reduce human population. There is a reason why ads are allowed everywhere,
 and thats to both make profit and make sure suggestion/hypnosis stays legal. They will cause us all to want to leave to Mars by making normal life impossible, and I do beleive nobody will actually reach Mars, tho we might get deep fake videos from people
-allegedly inhabiting Mars.
+allegedly inhabiting Mars. I also beleive they use network capabilities to actually do things to people, and the ammount of damage they can do to you depends on network capability.
