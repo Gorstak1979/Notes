@@ -9,6 +9,7 @@ The boy next to me drank it bottoms up, and the neighbour asked him if he wanted
 I asked if I could come play too, and he said not now, come at 2pm. I came, but nobody opened the door, and I left, but with a pain at my behind.
 I become strange after that. I ask another kid, male, to get naked, and I lay naked on him, but not knowing what I should be doing.
 He suggest I should find a girl, and I do, but she runs away after I propose she comes into a made up hole in the bush with cardboard on the floor.
+I also hum song Offenbach - Katchi, 40y before it is released, in english that I still didn't learn a word of.
 
 I'm being bullied since first day of elementary school, and I sit with a Rom, who everyone is calling gypsy.
 I call him gipsy too, not knowing that's an insult and he takes me to his dad, but I don't remember what happened there, only that I had a sore ass when I left, and that a slim young guy only I could see asked me what happened.
@@ -87,13 +88,18 @@ When I go to irish pub, I sit at table with a dozen people, one of them asks wha
 
 My friends Davor Baštanić and Ivica Stručić want me to drive them to Split, to parachuters club, where I end up raped.
 
-I go to drink in UB40 place called Garden, where a guy approaches me and asks what I think about gays. He disappears before my eyes and I have 100kn missing in my wallet.
+I go to drink in UB40 place called Garden, where a guy approaches me and asks what I think about gays. He disappears before my eyes and I have 100kn missing in my wallet and a sore ass.
+
+I meet a girl called Marina Šećer, and take her to a small island in area of Zadar called Arbanasi, but some guy there asks me what I think about gays, and I lose memory and Marina wants to leave.
 
 My mom and my dog die, and I get family pension as 100% work unable, 70% off of my moms pension.
 
 All in all, I got raped over 20 times, by both men and women, which I still don't remember and I believe there is a command word in my subconscious that makes me submissive when I hear it.
 
 I hear Jadranka has a daughter too, but I think the child is either my dads, or my 2nd floor neighbours. If it's mine, then it's possible I have 4 kids I'm just biological father of.
+
+Filip invites me to some pizzeria, and I come, only to suddenly find myself out of pizzeria. I go back in, Filip orders lasagne for him and his 2 buddies and pretends I don't exist, 
+and one of the guests tells me one of the guests wanted a blowjob a paid Filip 100 eur to invite me there.
 
 Someone seems to be breaking or pulling out my teeth from time to time, and one I day I couldn't stand up because my left knee was somehow broken. I limped for 2y after that and now I still have clicking sound but can walk normally.
 
