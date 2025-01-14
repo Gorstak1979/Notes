@@ -82,6 +82,8 @@ Filip is tricking me into marrying some girl. I fail to see the bride face becau
 
 A waiter from Downtown bar, Ante Mitrović, wants me to nail his wife, Iva Delija, because he can't have kids. I refuse, but lose memory and see them having 2 kids on facebook, years later.
 
+While I'm guarding Tankerkomerc marina, an elderly guy brags he nailed my mom while they were both at spa. 
+
 My memories slowly start returning, bit by bit, at age of 35 I finally grasp figurative speech, as I understood everything literally till then.
 
 When I go to irish pub, I sit at table with a dozen people, one of them asks what we think about gays, and I lose memory, then come back, and one of them is tossing me a knife to deal with the gay, but I don't remember what the gay did.
@@ -99,7 +101,7 @@ All in all, I got raped over 20 times, by both men and women, which I still don'
 I hear Jadranka has a daughter too, but I think the child is either my dads, or my 2nd floor neighbours. If it's mine, then it's possible I have 4 kids I'm just biological father of.
 
 Filip invites me to some pizzeria, and I come, only to suddenly find myself out of pizzeria. I go back in, Filip orders lasagne for him and his 2 buddies and pretends I don't exist, 
-and one of the guests tells me one of the guests wanted a blowjob a paid Filip 100 eur to invite me there.
+and one of the guests tells me one of the guests wanted a blowjob and paid Filip 100 eur to invite me there.
 
 Someone seems to be breaking or pulling out my teeth from time to time, and one I day I couldn't stand up because my left knee was somehow broken. I limped for 2y after that and now I still have clicking sound but can walk normally.
 
