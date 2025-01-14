@@ -122,8 +122,12 @@ and they hypnoed me and ordered me to work on security, so I got a job as a secu
 They also made me break up with every gf I ever had and forced me to stay single for almost 10y now. They're also actively preventing me from finding a new gf by telling people bad things about me. 
 They follow me everywhere online I go and instruct people how to deal with me. They also tried forcing me into killing my father. They basically made me their slave.
 
-Last time I was raped was a week ago, and if I think they infected me with something very bad this time.
-
 To add some details, it seems I was hypnoed and ordered to do things since I was a toddler. When I developed schizofrenia 20y ago, I beleive it had to do with phone line being switched to line 2 at my work place, and I was ordered to google pedo stuff, 
 so they had excuse to cause me schizophrenia, make my word worthless after that, aaand tell people I'm pedo so they get everyone against me. I can maybe understand rapists, but my friends turned on me back in 96, when I was 16 and don't know what it is
 I did to them that was so terrible.
+
+For some reason, I seem to come across all my ex women in my life when I go to store, but since they disgust me and I'm paranoid why are they there I don't even say hi, and it seems to be an excuse to rape me as I end up raped day later.
+Sometimes I feel a sting in my behind, as if I took a needle, and I end up bleeding from my behind a day later. Sometimes I get the shakes as if I'm suffering some drug withdrawal.
+If I am receiving injections, it is both against my will and since I don't remember any nurse coming over, nor taking any injections, it means they hypnoed me or drugged me to give me injection, even tho I regularly drink my meds.
+Meaning my father is either lying to psychatrists about my condition, or both him and the psychiatrists are a part of some organized crime group. I'm also willing to bet the command word in my subconscious that makes me submissive
+was some shrinks doing after my dad likely lied I was agressive.
