@@ -130,5 +130,5 @@ For some reason, I seem to come across all my ex women in my life when I go to s
 Sometimes I feel a sting in my behind, as if I took a needle, and I end up bleeding from my behind a day later. Sometimes I get the shakes as if I'm suffering some drug withdrawal.
 If I am receiving injections, it is both against my will and since I don't remember any nurse coming over, nor taking any injections, it means they hypnoed me or drugged me to give me injection, even tho I regularly drink my meds.
 Meaning my father is either lying to psychatrists about my condition, or both him and the psychiatrists are a part of some organized crime group. I'm also willing to bet the command word in my subconscious that makes me submissive
-was some shrinks doing after my dad likely lied I was agressive. They usually give me antidepressants after raping me even tho I'm not the slightest depressed, so I end up in a good mood and laughing with a sore ass.
+was some shrinks doing after my dad likely lied I was agressive. They usually give me antidepressants after raping me even tho I'm not the slightest depressed, so I end up in a good mood and laughing with a sore ass after getting raped.
 I also congratulated new year to my 2nd floor neighbour that raped me.
