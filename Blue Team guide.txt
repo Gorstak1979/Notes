@@ -1,0 +1,12 @@
+If you're wondering how hackers get in, there are 3 ways. 
+
+First is if you leaked your IP, they connect to RDP port 3389, enter username and password when prompted or exploit missconfigured/unpatched RDP service.
+2nd way is scanning your ports to find out whats listening, then exploiting something unpatched or maybe connecting to one of open shares.
+3rd way is by making you download and execute malware, by a masked link or infected email, which will then use something builtin to phone home, like powershell.
+
+Protection is pretty easy. You should download and install a firewall that has nothing to do with Windows firewall.
+Windows firewall auto allows rules which are more unique then others, so your block rule may be overriden. Therefore, windows firewall is not safe.
+Once you aquire such a firewall, add rule to block all incoming connections on local port range 1-66 and 69-65535. You need to leave ports 67-68 if you don't
+use static IP, and you use DHCP, which is the case for majority of people. Then you need to drop all you are doing, close all apps, and wait till firewall prompts you
+something like powershell, or bits or curl or winget or terminal is making an outgoing connection, then block that IP. This is a process that may require a few hours
+of patience. Then simply check logs which process called powershell, and delete it.
