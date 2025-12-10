@@ -1,0 +1,287 @@
+# kiosk crt games:
+
+New Zealand story
+Final Fight
+Street Fighter 2
+Shinobi
+Rambo III
+
+# handhelds (dumb)
+
+Space Invaders
+
+# Nintendo
+
+Space Invaders
+Tetris
+
+# Comodorre 64
+
+Scalestrix
+Gianna Sisters
+Rick Dangerous
+International Karate
+International Karate 2
+Samurai Warrior
+
+# Tabletop games
+
+Dungeons and dragons
+Monopoly
+Memory
+
+# Card games
+
+Briskula
+Treseta
+Trijumf
+Remi
+Poker
+
+# PC (offline strategy)
+
+Warlords
+Warlords 2
+Warlords 3
+North and South
+Panzer General
+Panzer General 2
+Dune 2
+Dune 2000
+Warcraft
+Warcraft 2
+Command and Conquer : Red alert
+KKND
+Z
+M.A.X
+M.A.X 2
+Heroes of Might and Magic
+Heroes of Might and Magic 2
+Heroes of Might and Magic 3
+Heroes of Might and Magic 4
+Heroes of Might and Magic 5
+Kings Bounty
+1914-1918
+Battle Isle
+Battle Isle 2
+Age of Wonders
+Masters Of Orion
+Masters Of Orion 2
+Masters Of Orion 3
+X-COM: Enemy Unknown
+X-COM: Terror from the deep
+X-COM: Apocalypse
+X-COM 2
+Jagged Alliance
+Jagged Alliance 2
+Jagged Alliance: Deadly games
+Shogun: Total War
+Wolfpack
+Sid Meiers Alpha Centauri
+Incubation
+Genesia
+Starcraft
+Age of Empires
+Age of Empires 2
+Age of Empires 3
+Age of Mythology
+Rise of Nations
+Pizza Tycoon
+Transport Tycoon
+Silent Service
+Silent Service 2
+Homeworld
+
+# PC (offline adventure)
+
+Day of the Tentacle
+Monkey Island
+Monkey Island 2
+Monkey Island 3
+Police Quest
+Indiana Jones and the fate of Atlantis
+Full Throttle
+Broken Sword
+Broken Sword 2
+Broken Sword 3
+Broken Sword 4
+Broken Sword 5
+Dune
+Colossus
+Grim Fandango
+The Dig
+
+# PC (offline sports)
+
+Winter Olympics
+Summer Olympics
+Championship Manager
+Football Manager 2013
+Football Manager 2014
+Football Manager 2015
+Football Manager 2017
+Great Courts 2
+Actua Soccer
+
+# PC (offline fighting games)
+
+WWF: Wrestlemania
+One Must Fall: 2097
+Street Fighter
+Street Fighter 2
+Street Fighter 3
+Mortal Kombat
+Mortal Kombat 2
+Rise of Machines
+Toshinden
+
+# PC (offline action games)
+
+Diablo
+Diablo 2
+Golden Axe
+Golden Axe 2
+NOX
+Sacred
+Sacred 2
+Sacred 3
+Gothic
+Gothic 2
+Divine Divinity
+Divine Divinity 2
+Dungeon Siege
+Dungeon Siege 2
+Dungeon Siege 3
+Risen
+Risen 2
+Risen 3
+Flashback
+Black Thorne
+Hunter Hunted
+Mordor: Depths of Dejanol
+Grim Dawn
+Van Helsing
+Van Helsing 2
+Van Helsing 3
+Torchlight
+Torchlight 2
+Wing Commander 3
+Wing Commander: Armada
+Wing Commander: Privateer
+Wing Commander: Privateer 2
+
+# PC (offline role playing games)
+
+Baldur's Gate
+Baldur's Gate 2
+Icewind Dale
+Icewind Dale 2
+Elder Scrolls: Morrowind
+Elder Scrolls: Oblivion
+Elder Scrolls: Skyrim
+Mass Effect
+Mass Effect 2
+Mass Effect 3
+Fallout
+Fallout 2
+Fallout Tactics
+Fallout 3
+Fallout New Vegas
+Fallout 4
+Eye of the Beholder
+Lands of Lore
+Lands of Lore 2
+Lands of Lore 3
+Betrayal at Krondor
+The Bards Tale
+Menzoberanzan
+
+# PC (offline logical/puzzle games)
+
+Brix
+
+# PC (offline arcade games)
+
+Icy Tower
+Platypus
+Pong
+Bugs Bunny: Lost in Time
+Alien
+Into the Eagles Nest
+Tyrian
+MechWarrior
+MechWarrior 2
+Heavy Gear
+Heavy Gear 2
+
+# PC (offline shooter games)
+
+Doom
+Doom 2
+Doom 3
+Blood
+Blood 2
+Powerslave
+Rise of Triad
+Heretic
+Hexen
+Duke Nukem 3D
+Quake
+Wolfenstein
+Alien vs Predator
+Prey
+Call of Duty
+Call of Duty 2
+Call of Duty 3
+Call of Duty 4
+Borderlands
+Borderlands 2
+Farcry
+Farcry 4
+Thief
+Half Life
+Half Life 2
+Medal of Honor
+
+# PC (offline driving games)
+
+Need for Speed: Underground
+Need for Speed: Underground 2
+Live for speed
+Micro Machines
+Micro Machines 2
+Ignition
+Speedracer
+Wacky Wheels
+Death Rally
+Elastomania
+Quarantine
+Motocross Madness
+Collin Mcrae Rally 2
+Dirt 3
+Screamer
+Screamer 2
+Moto Racer
+Moto Racer 2
+Race Driver: GRID
+TOCA
+Q RAC Rally
+Grand Theft Auto
+Grand Theft Auto 2
+Carmageddon
+
+# PC (online games)
+
+Stronghold Kingdoms
+Star Trek Online
+Allods
+Guild Wars
+World of Warcraft
+Diablo 3
+Elder Scrolls Online
+Shaiya
+Black Desert Online
+Path of Exile
+Age of Conan
+Dota 2
+Silkroad
