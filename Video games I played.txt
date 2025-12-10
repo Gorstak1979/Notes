@@ -38,6 +38,17 @@ Trijumf
 Remi
 Poker
 
+# Others (RL)
+
+Broken horse
+Chess
+Domino
+Covjece ne ljuti se
+Granicari
+Football
+Basket
+Ping Pong
+
 # PC (offline strategy)
 
 Warlords
