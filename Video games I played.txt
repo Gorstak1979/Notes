@@ -91,6 +91,7 @@ Transport Tycoon
 Silent Service
 Silent Service 2
 Silent Hunter
+668 Attack sub
 Homeworld
 
 # PC (offline adventure)
