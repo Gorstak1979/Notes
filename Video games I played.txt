@@ -45,6 +45,7 @@ Chess
 Domino
 Covjece ne ljuti se
 Granicari
+Hide n Seek
 Football
 Basket
 Ping Pong
