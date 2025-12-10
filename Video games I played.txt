@@ -40,7 +40,7 @@ Poker
 
 # Others (RL)
 
-Broken horse
+Rotten horse
 Chess
 Domino
 Covjece ne ljuti se
