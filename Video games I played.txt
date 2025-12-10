@@ -90,6 +90,7 @@ Pizza Tycoon
 Transport Tycoon
 Silent Service
 Silent Service 2
+Silent Hunter
 Homeworld
 
 # PC (offline adventure)
