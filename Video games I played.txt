@@ -105,6 +105,7 @@ Silent Service 2
 Silent Hunter
 688 Attack sub
 Homeworld
+Netstorm: Islands at war
 
 # PC (offline adventure)
 
