@@ -215,6 +215,7 @@ NeverWinter Nights
 NeverWinter Nights 2
 Star Wars: Kotor
 Star Wars: Kotor 2
+Wasteland 2
 
 # PC (offline logical/puzzle games)
 
