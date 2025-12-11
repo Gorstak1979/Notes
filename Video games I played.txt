@@ -103,7 +103,7 @@ Transport Tycoon
 Silent Service
 Silent Service 2
 Silent Hunter
-668 Attack sub
+688 Attack sub
 Homeworld
 
 # PC (offline adventure)
@@ -183,6 +183,8 @@ Wing Commander 3
 Wing Commander: Armada
 Wing Commander: Privateer
 Wing Commander: Privateer 2
+Wing Commander 4
+Star Wars: Tie Fighter
 
 # PC (offline role playing games)
 
@@ -209,6 +211,10 @@ Lands of Lore 3
 Betrayal at Krondor
 The Bards Tale
 Menzoberanzan
+NeverWinter Nights
+NeverWinter Nights 2
+Star Wars: Kotor
+Star Wars: Kotor 2
 
 # PC (offline logical/puzzle games)
 
@@ -283,6 +289,7 @@ Q RAC Rally
 Grand Theft Auto
 Grand Theft Auto 2
 Carmageddon
+Star Wars: Racer
 
 # PC (online games)
 
