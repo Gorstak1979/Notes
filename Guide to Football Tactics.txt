@@ -6,7 +6,7 @@ c) 2 attackers = counter
 d) 3 attackers = standard
 e) 4 attackers = control
 f) 5 attackers = atacking
-g) 0 attackers = overload
+g) 6 attackers = overload
 
 2. Set fluidity depending on number of defenders (WB, DM, FB, CB)
 
