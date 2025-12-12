@@ -1,20 +1,20 @@
-1. Set mentality depending on number of midfielders (WB, DM, WM, MC, W, AMC)
+1. Set mentality depending on number of attackers (W, AMC, ST)
 
-a) 0 midfielders = contain
-b) 1 midfielder = defensive
-c) 2 midfielders = counter
-d) 3 midfielders = standard
-e) 4 midfielders = control
-f) 5 midfielders = atacking
-g) 6 midfielders = overload
+a) 0 attackers = contain
+b) 1 attacker = defensive
+c) 2 attackers = counter
+d) 3 attackers = standard
+e) 4 attackers = control
+f) 5 attackers = atacking
+g) 0 attackers = overload
 
-2. Set fluidity depending on number of attackers (W, AMC, ST)
+2. Set fluidity depending on number of defenders (WB, DM, FB, CB)
 
-a) 5 attackers = very fluid
-b) 4 attackers = fluid
-c) 3 attackers = flexible
-d) 2 attackers = structured
-e) 1 attackers = highly structured
+a) 7 defenders = very fluid
+b) 6 defenders = fluid
+c) 5 defenders = flexible
+d) 4 defenders = structured
+e) 3 defenders = highly structured
 
 3. Fluidity meaning:
 
@@ -32,14 +32,13 @@ c) flexible = 4-5 support duties
 d) fluid = 6-7 support duties
 e) very fluid = 8-9 support duties
 
-5. Changing fluidity and mentality is needed to make a specific part of the pitch your strong spot.
-However, the opposite will be your weak spot. This is useful if you want a group of players or a single player to excel for selling:
+5. This is your strong spot. Opposite of this is your weak spot
 
-a) very fluid = right
-b) fluid = central right
+a) very fluid = left
+b) fluid = central left
 c) flexible = centre
-d) structured = central left
-e) highly structured = left
+d) structured = central right
+e) highly structured = right
 
 a) overload = ST
 b) attacking = AMC
@@ -52,9 +51,9 @@ g) contain = GK
 6) Notes
 
 a) If mentality is higher than fluidity, players will get cards or get injured.
-b) More fluid and less agressive will will create best possible form.
+b) Attacking mentality means your weak spot is defense, be careful
 c) More agressive mentality means more shots and more shots converted to goals.
-d) More structured fluidity means stupid behaviour and shots on target.
+d) More structured fluidity means bad decisions and more shots on target.
 
 7) Player responsibilities
 
